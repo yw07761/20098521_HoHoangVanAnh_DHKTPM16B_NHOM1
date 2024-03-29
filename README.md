@@ -21,4 +21,6 @@ b)
 ![image](https://github.com/yw07761/20098521_HoHoangVanAnh_DHKTPM16B_NHOM1/assets/89188722/0054c556-47dd-4813-bb8b-19bc5acd5963)
 
 Câu 3: 
+![image](https://github.com/yw07761/20098521_HoHoangVanAnh_DHKTPM16B_NHOM1/assets/89188722/45fc623c-2794-436b-b93d-73ad1814922d)
+
 ![image](https://github.com/yw07761/20098521_HoHoangVanAnh_DHKTPM16B_NHOM1/assets/89188722/a6210f6f-1f9c-4b7c-a0e9-8050ff25cc8d)
